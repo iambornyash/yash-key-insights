@@ -1,1 +1,8 @@
 # yash-key-insights
+
+
+Gained substantial practical exposure to legal drafting and documentation, including the preparation of legal notices, petitions, affidavits, applications, and other procedural documents. Acquired a comprehensive understanding of drafting techniques, legal terminology, and the importance of precision and clarity in legal writing.
+Observed and studied the day-to-day functioning of civil and criminal courts, which provided valuable insight into judicial processes, courtroom procedures, and the administration of justice. Learned about courtroom etiquette, case filing procedures, stages of litigation, and the responsibilities and role of advocates during court proceedings and client representation.
+Reviewed and analyzed case files to identify material facts, legal issues, applicable statutory provisions, precedents, and judicial interpretations. This process significantly enhanced analytical reasoning, legal research abilities, critical thinking, and problem-solving skills. Developed the ability to correlate theoretical legal concepts with their practical application in real-life disputes and judicial proceedings.
+Gained exposure to professional ethics, standards of conduct, and the duties and responsibilities expected from legal practitioners. Understood the significance of confidentiality, discipline, client communication, and professional integrity in the legal profession.
+The experience also improved communication, drafting, observation, and interpersonal skills while fostering confidence in understanding practical legal procedures and advocacy. Overall, the internship/training provided a deeper and more nuanced understanding of the practical functioning of the legal system and strengthened my interest in the field of law.
